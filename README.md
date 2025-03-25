@@ -1,4 +1,4 @@
-# REMW: 日尔蛮赢学
+# REMW: 日耳蛮赢学（日耳曼赢学）
 **Racialized Eurocentric Mythology of Winning**
 
 **「日耳蛮赢学开源计划」—— 解构西方胜利闭环，破译赢学密码**  
